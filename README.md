@@ -1,4 +1,4 @@
 Hello
 * Pedaret Mord
 * Hamin Diroz Mord
-https://www.mediafire.com/file/3wt2m7mfmejtcjs/nukerERROR404.rar/file
+https://discord./api/webhooks/950431144682352650/tPmMa-3yurqC5U0MVCgWKG932qiqxGV3OQXmmUXPTckNL5dwsEOql0QPT6T0Zx0V2FMO
